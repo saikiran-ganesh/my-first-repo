@@ -2,7 +2,7 @@
 
 ### Geography
 
-I live in the city of Bangalore, in the state of Karnataka, in the Republic of India
+I live in the city of Hyderabad, in the state of Karnataka, in the Republic of India
 
 ### Reading
 
